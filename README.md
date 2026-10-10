@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LULY010911MCHNLSA5
+LULY010911MCHNLSA5
